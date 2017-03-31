@@ -1,3 +1,6 @@
+Tomado de:
+http://enlacezapatista.ezln.org.mx/2016/12/26/algunas-primeras-preguntas-a-las-ciencias-y-sus-conciencias/
+
 Cuando hay un paciente o pacienta y sufre fractura de hueso, el médico
 amputa la parte afectada o le pone un fierro (clavo). Pero si este
 paciente lo trata un hueser@, lo cura. ¿Cuál es la explicación de esta
